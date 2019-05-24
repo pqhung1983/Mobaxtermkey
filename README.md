@@ -1,4 +1,4 @@
-# MobaXterm Keygen
+# MobaXterm
 
 ## How it work?
 
